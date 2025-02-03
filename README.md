@@ -95,3 +95,7 @@ For a limited time only, you can download your copy of our AI FRANCHISE  today f
 
 
 ---
+[Source Project](https://jvupsell.com/2025/02/ai-franchise-micheal-cheney/)
+
+
+
